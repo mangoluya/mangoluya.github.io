@@ -1,5 +1,5 @@
-# Test page
+# Mangoluya
 
-## yoyoyo
-- banna**na**
-- apple
+## How to be boring?
+- just wake
+- just be yourself
